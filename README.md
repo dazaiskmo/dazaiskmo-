@@ -7,6 +7,6 @@ Working on this when i have time pls follow me if ya wanna <3
 
 
 
-<img width="736" height="615" alt="Untitled176_20260421161313" src="https://github.com/user-attachments/assets/87a4eeff-a2ad-413d-96ac-4aa3e43dd17f" />
+
 
 
