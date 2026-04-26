@@ -1,5 +1,5 @@
-readme is still a wip :
-<img width="690" height="323" alt="Untitled175_20260420185454" src="https://github.com/user-attachments/assets/3aba8900-916b-4fb7-88eb-97ab7efaf91c" />
+readme is still a wip : 
+<img width="690" height="323" alt="Untitled175_20260420185454_polarr" src="https://github.com/user-attachments/assets/bd917b8d-6b39-4a5d-8310-cc97039ec1cf" />
 
 
 
