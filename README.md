@@ -3,7 +3,21 @@ Working on this when i have time pls follow me if ya wanna <3
 
 
 
-<img width="540" height="400" alt="tumblr_7caab7fe7e9d4ed4a63367eb6942059d_ca88e50a_540" src="https://github.com/user-attachments/assets/6f3ac620-22fa-4834-9b35-3646efa69b5a" />
+
+
+
+
+
+
+
+
+https://github.com/user-attachments/assets/d605fdbc-c169-479b-bbb4-fa016fea51d5
+
+
+
+
+
+
 
 
 
