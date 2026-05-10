@@ -22,7 +22,7 @@ lazy readme hiii : <img width="20" height="20" alt="MBXRMWM" src="https://github
 
 
 
-[atabook ★](https://rikiiyukisverison.straw.page/) <--- cool info abt me! 
+[atabook ★](https://oscarpastryisgoated.straw.page) <--- cool info abt me! 
 
 
 
